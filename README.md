@@ -47,9 +47,9 @@ Tenho grande interesse em **desenvolvimento Front-End**, criando interfaces mode
 
 ## 📬 Contato
 
-📌 GitHub: https://github.com/seuusuario  
-📌 LinkedIn: (seu linkedin)  
-📌 Email: (seu email)
+📌 GitHub: 
+📌 LinkedIn: (www.linkedin.com/in/daniel-vargas-06466733a)  
+📌 Email: (danielvargasclashxxx@gmail.com)
 
 ---
 
